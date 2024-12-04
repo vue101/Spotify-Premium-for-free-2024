@@ -1,3 +1,5 @@
+![Preview Image](Screenshot_1-11-2024_164614_th.bing.com (1).jpeg)
+
 Spotify Premium for free 2024 Tip
 
 This software makes Spotify think you have a Premium subscription, granting free listening, just like Spotilife, and provides some additional features like custom lyrics. Getting Started: Installation
